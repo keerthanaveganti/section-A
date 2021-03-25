@@ -5,7 +5,5 @@
 ## Keerthanasrinivas
 ### Keerthanasrinivas
 #### Keerthanasrinivas
-
 *Keerthanasrinivas*
-_Ian somerhalder_
 **paulwesly**
